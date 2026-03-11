@@ -1,1 +1,2 @@
 # jj
+gg katka slita
